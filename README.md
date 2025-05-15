@@ -8,7 +8,7 @@
 📫 Contact: hoangbao211998@gmail.com  
 📞 Phone: (+84) 777 718 264
 🌍 Location: Ho Chi Minh City, Vietnam  
-🔗 LinkedIn: [linkedin.com/in/lê-hoàng-bảo-a4b8ab1b8](https://www.linkedin.com/in/lê-hoàng-bảo-a4b8ab1b8/)
+🔗 LinkedIn: https://www.linkedin.com/in/le-hoang-bao/
 🕐 Available: 9am – 6pm (GMT+7)
 
 ---
