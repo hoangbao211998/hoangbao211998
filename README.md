@@ -7,9 +7,7 @@
 🎯 Career goal: Become a Data/Business Analyst who bridges data and decision-making  
 📫 Contact: hoangbao211998@gmail.com  
 📞 Phone: (+84) 777 718 264
-🌍 Location: Ho Chi Minh City, Vietnam  
-🔗 LinkedIn: https://www.linkedin.com/in/le-hoang-bao/
-🕐 Available: 9am – 6pm (GMT+7)
+🔗 LinkedIn: https://www.linkedin.com/in/le-hoang-bao
 
 ---
 
